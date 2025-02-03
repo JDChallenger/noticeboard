@@ -6,7 +6,7 @@
 
 ## Coming up
 
-* Pub trip (venue TBC), Thursday 6th February
+* Pub trip (Pavillion), Thursday 6th February
 
 * DIDE Book Appreciation Club, Thursday 13th February 12 noon, venue TBC
 
