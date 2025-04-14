@@ -16,6 +16,8 @@
 
 * Pub trip - Thursday 27th March [11th Floor Cocktail Club in the Uren Building, followed by the Pavillion]
 
+* International Bake Off judged by Ruth McCabe, Anne Cori & Azra Ghani - Thursday 29th May [4th Floor Kitchen]
+
 
 ## Events by MOVE Imperial
 
